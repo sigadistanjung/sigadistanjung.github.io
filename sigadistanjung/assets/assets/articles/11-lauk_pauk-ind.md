@@ -1,0 +1,8 @@
+# Lauk PAUK (Sumber Protein)
+Lauk pauk terdiri dari pangan sumber protein hewani dan pangan sumber protein nabati. Lauk-pauk hewani: daging(ayam, sapi, kambing, rusa, dan lainnya), ikan termasuk hasil laut, telur, susu dan hasil olahannya. Sedangkan lauk-pauk nabati berupa tahu, tempe, kacang-kacangan (kacang tolo, kacang merah, kacang tanah, kacang hijau dan lainnya).
+
+Sumber pangan parotein hewani dan nabati masing-masing mempunyai beberapa kelebihan dan keurangan. Lauk hewani mempunyai asam amino yang lebih lengkap dan mudah diserap tubuh. Kekurangannya, jumlah kolestrol dan lemaknya lebih tinggi serta harganya relatif mahal. Biasanya kandungan kolestrol dan lemak jenuh yang tinggi sering ditemui pada daging dan sedikit pada ikan. Sebenarnya anak-anak masih memerlukan kedua zat ini untuk pertumbuhan tapi akan berakbiat tidak baik pada orang dewasa. Untuk itu langkah bainya bila orang dewasa membatasi konsumsi kolestrol dan lemak jenuh. 
+
+Sedangkan bahan pangan protein nabati mempunyai keunggulan dibandingkan hewani karena kandungan lemak tak jenuhnya lebih tinggi daripada bahan pangan hewani. Kandungan isoflavonnya, terutama pada kedelai menjadi daya tarik karena manfaatnya sangat banyak. Isoflavon ini tidak ada dalam bahan pangan hewani.
+
+Keuntungan lainnya, bahan pangan ini harganya jauh lebih murah dibanding hewani. Namun demikian, kelemahannya bahan pangan nabati yaitu kurang higienisnya proses pembuatan lauk pauk yang berasal dari kacang-kacangan. Biasanya pabrik pengolahan tahu dan tempe kurang memperhatikan kebersihan tempat dan wadah yang digunakan selama proses produksi. Dan itu salah satu faktor yang mempengaruhi kualitas dan baik buruknya lauk-pauknya yang akan dikonsumsi.
